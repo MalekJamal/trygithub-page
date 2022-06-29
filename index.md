@@ -12,14 +12,14 @@
 ***
 - ## **Yemeni meals.😋😋**
 1. **Fahsa.**
-2. **Sayadiah**
+2. **Sayadiah.**
 3. **Bint Asahn.**
 4. **Zurbian.**
 5. **Mandi.**
 ***
 ***
 - ## **Palestinian meals.😋😋**
-1. **Freekeh – Green Wheat.**
+1. **Freekeh–Green Wheat.**
 2. **Musakhan – Sumac Chicken.**
 3. **Shish Barak – Lamb Dumplings.**
 4. **Qidreh – Chickpeas Rice And Lamb.**
